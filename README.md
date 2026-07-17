@@ -1,0 +1,2 @@
+# Zamanix-industries-
+Ai manager
